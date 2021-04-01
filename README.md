@@ -1,0 +1,2 @@
+# Eliminacion-bloatwareWN10
+ 
